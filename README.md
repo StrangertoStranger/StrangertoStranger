@@ -1,3 +1,4 @@
+HIIIIII QUINN<3
 *i love my Shadow x metal sonic ship*
   
 ![tumblr_9de6a89b91c7d59511cfce86e52964a8_7069eb05_1280](https://github.com/user-attachments/assets/5628ab21-dc47-4a0e-bc7d-9e609b800072)
