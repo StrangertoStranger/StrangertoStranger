@@ -7,6 +7,7 @@ HIIIIII
 
 haiii feel free to dm and ask me about anything! Crc changed my life, toxic = report or get blocked unless yer my friend
 
+commissions r open dm me by discord atlasswims if you want commission by me
 *meow*
 
 ![maxresdefault](https://github.com/user-attachments/assets/6967a828-462e-426f-910b-3f486ffb3f14)
