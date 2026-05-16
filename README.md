@@ -5,7 +5,7 @@ HIIIIII
 
 
 
-haiii feel free to dm and ask me about anything! Crc changed my life, toxic = report or get harassed by me unless yer my friend
+haiii feel free to dm and ask me about anything! Crc changed my life, toxic = report or get blocked unless yer my friend
 
 *meow*
 
